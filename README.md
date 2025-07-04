@@ -1,1 +1,0 @@
-# sedatebne.github.io
